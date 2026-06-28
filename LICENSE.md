@@ -1,4 +1,4 @@
-# 
+# Ultime sushiswap trading bot plugins for Mac OS | Élite sushiswap trading bot plugins for PC Windows. Featuring pools de liquidité DEX and API d'échange centralisé — optimized for maximum performance.
 
 
 
